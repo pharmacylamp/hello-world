@@ -10,3 +10,5 @@ glad they finally came around!
 
 Andrew has a surgery to extract his tooth tomorrow, which doesn't sound pleasant. 
 I'm gonna give him a call soon.
+
+It's a wonderful rainy day here in Vancouver.
